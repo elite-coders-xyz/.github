@@ -50,7 +50,7 @@ Want to level up your dev journey or get a clean, modern website built for your 
 
 📧 Mail us at: [elitecodersxyz@outlook.com](mailto:elitecodersxyz@outlook.com)  
 🌐 Visit: [https://elitercoders.xyz](https://elitercoders.xyz)  
-📱 DM us on Instagram: [@elitecoders.xyz](https://instagram.com/elitecoders.xyz)
+📱 DM us on Instagram: [@elitecoders.xyz](https://instagram.com/elite_coders_)
 
 ---
 
